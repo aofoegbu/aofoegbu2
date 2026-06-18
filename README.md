@@ -17,7 +17,7 @@ My focus areas include:
 
 ---
 
-# 🚀 Featured Projects
+# 🚀 Featured Projects 
 
 ---
 
